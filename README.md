@@ -1,1 +1,1 @@
-# traducci-n_ingl-s-espa-ol
+# traduccion_ingles-espanol
